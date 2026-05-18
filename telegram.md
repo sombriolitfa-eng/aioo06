@@ -7,6 +7,308 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:33
+---
+
+## VahidOOnLine — post 240854
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240854_1779134596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اطرافیان حامد تیزرویان، عکاس و کارشناس محیط‌زیست اهل مازندران، به ایندیپندنت فارسی خبر دادند که او از ۱۴ اردیبهشت‌ماه به دست ماموران اداره اطلاعات ساری بازداشت شده و از آن زمان در زندان این شهر نگهداری می‌شود.
+
+بر اساس اطلاعات رسیده به ایندیپندنت فارسی، انتقادهای حامد تیزرویان در صفحه اینستاگرامش از مقام‌های جمهوری اسلامی، به‌ویژه در ارتباط با سرکوب و کشتار تاریخی معترضان در جریان انقلاب ملی ایرانیان، دلیل اصلی بازداشت او بوده است. به گفته منابع مطلع، در جلسه بازپرسی نیز اتهام «اجتماع و تبانی علیه امنیت ملی» به او تفهیم شده است.
+
+حامد تیزرویان دانشجوی مقطع دکتری مهندسی محیط‌زیست با گرایش تنوع زیستی در دانشگاه بهشتی تهران است و در سال‌های اخیر نقش مهمی در راه‌اندازی و پیشبرد کمپین‌های اجتماعی برای حفاظت از جنگل‌های هیرکانی مازندران و حیات‌وحش این منطقه ایفا کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240853
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240853_1779134597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم وابسته به سپاه پاسداران، روز دوشنبه ۲۸ اردیبهشت‌ماه به نقل از «یک منبع نزدیک به تیم مذاکره‌کننده» جمهوری اسلامی گزارش داد با وجود برخی تغییرات در متن جدید پیشنهادی آمریکا، اختلافات اساسی میان دو طرف همچنان پابرجاست و «زیاده‌خواهی و عدم واقع‌بینی آمریکایی‌ها» ادامه دارد.
+
+این منبع به خبرگزاری تسنیم گفت آمریکا تلاش می‌کند مذاکرات مربوط به پایان جنگ را به موضوع هسته‌ای گره بزند، اما ایران با این موضوع موافق نیست و «پایان جنگ در برابر تعهدات هسته‌ای» را نخواهد پذیرفت.
+به ادعای این منبع، واشنگتن پیشنهادهایی چون «ایجاد صندوق توسعه و بازسازی» را مطرح کرده است، اما جمهوری اسلامی همچنین بر پرداخت غرامت از سوی آمریکا تاکید دارد.
+تسنیم به نقل از منبع خود تاکید کرد جمهوری اسلامی از مواضع خود درباره پایان جنگ و بازگرداندن اموال بلوکه‌شده ایران عقب‌نشینی نخواهد کرد و افزود وعده‌های کاغذی برای تهران کافی نیست. او گفت با وجود برخی وعده‌ها، اختلاف درباره نحوه بازگشت پول‌های بلوکه‌شده همچنان وجود دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+۵۰۹ بوست نیاز داریم 🙌🏾
+</div>
+
+## WithYashar — post 11590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## mwarmonitor — post 9278
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9278_1779134598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🇵🇰 هواپیمای A319 نیروی هوایی پاکستان (A-1102) که وزیر کشور پاکستان را حمل می‌کرد – وی در یک سفر رسمی دو روزه برای بررسی روابط دوجانبه و گفت‌وگوها با آمریکا به سر می‌برد – از مشهد خارج شد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341897
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341897_1779134598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Police are responding to reports of an active shooter at the Islamic Center of San Diego.
+
+Authorities confirmed the situation is ongoing and are urging the public to avoid the area.
+
+Officials have not yet confirmed whether there are any victims.
+
+@TheStoryFNC @marthamaccallum
+</div>
+
+## pm_afshaa — post 90991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: قرار بود فردا به ایران حمله کنیم، ولی رهبران قطر، عربستان و امارات ازم خواستن فعلاً متوقفش کنیم چون مذاکرات جدی در جریانه. به ارتش دستور دادم حمله فعلاً انجام نشه، ولی اگه توافق نرسیم، هر لحظه آماده حمله کامل به ایران باشن. از سمت رهبران قطر، عربستان…
+</div>
+
+## kianmeli1 — post 87468
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87468_1779134599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رزمایش مسلحانه زنان بسیجی در ارومیه
+
+این کلیپ را اپوزسیون ببیند که بدون «سازماندهی سراسری مسلحانه» نمیشود یک کوچه در ایران را آزاد کرد٫ با مبارزه مدنی گاندی و ماندلا فقط کشتار بیشمار بر دستمان می ماند
+
+جمهوری اسلامی سالهاست می گوید اگر میخواهید ایران را پس بگیرید٫ باید ابتدا از روی جنازه ما عبور کنید
+https://t.me/kianmeli1
+</div>
+
+## ManotoTV — post 105614
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105614_1779134601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«سکوت نکنیم، صدای فاطمه سپهری باشیم»
+</div>
+
+## ManotoTV — post 105613
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105613_1779134602.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی تروث سوشال نوشت:
+
+««امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته‌اند حمله نظامی برنامه‌ریزی‌شده‌مان علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، متوقف کنم؛ زیرا اکنون مذاکرات جدی در جریان است و به اعتقاد آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد!
+
+بر اساس احترامم به رهبران یادشده، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده به ایران را فردا انجام ندهند؛ اما همزمان به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، برای اجرای یک حمله کامل و گسترده علیه ایران، در هر لحظه آماده باشند.»
+</div>
+
+## ManotoTV — post 105612
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105612_1779134603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های داخل ایران گزارش دادند پدافند هوایی قشم شامگاه دوشنبه فعال شده است. مقام‌های جمهوری اسلامی توضیحی درباره علت فعالیت پدافند هوایی در این جزیره ارائه نکرده‌اند.
+</div>
+
+## ManotoTV — post 105611
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105611_1779134604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«رشید مظاهری به خاطر بیان عقیده_اش در بازداشت است»
+</div>
+
+## ManotoTV — post 105610
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105610_1779134605.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+</div>
+
+## ManotoTV — post 105609
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105609_1779134606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانیان در لیسبون مقابل سفارت نروژ؛ اعتراض به دیدار سیاستمداران نروژی با جمهوری اسلامی
+</div>
+
+## FarsiVOA — post 218088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آموزش حکومتی کار با سلاح در تلویزیون و خیابان؛ بومرنگی علیه حاکمیت جمهوری اسلامی؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218087
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218087_1779134608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مقامات جمهوری اسلامی از فعال شدن ضدهوایی‌ها در جزیره قشم در روز دوشنبه خبر دادند. معاون سیاسی، امنیتی و اجتماعی استاندار هرمزگان، احمد نفیسی گفت فعالیت ضدهوایی‌ها برای مقابله با «ریزپرنده‌های دشمن» بود. او در اظهاراتی که خبرگزاری فارس، وابسته به سپاه منتشر کرد، از بیان اینکه آیا حملات ادعایی پهپادها خساراتی برجای گذاشته است یا خیر خودداری کرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجار در سلیمانیه عراق گویا سپاه دوباره به مقر پژاک حمله کرده
+</div>
+
+## Persian_Trend_Official — post 14453
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14453_1779134608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اینم نتیجه رفتار و عملکرد دونالد ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105614
+
+<div align="center">
+  <a href="telegram/content/manototv_105614_1779134608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«سکوت نکنیم، صدای فاطمه سپهری باشیم»
+</div>
+
+## manototv — post 105613
+
+<div align="center">
+  <a href="telegram/content/manototv_105613_1779134610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی تروث سوشال نوشت:
+
+««امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته‌اند حمله نظامی برنامه‌ریزی‌شده‌مان علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، متوقف کنم؛ زیرا اکنون مذاکرات جدی در جریان است و به اعتقاد آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد!
+
+بر اساس احترامم به رهبران یادشده، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده به ایران را فردا انجام ندهند؛ اما همزمان به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، برای اجرای یک حمله کامل و گسترده علیه ایران، در هر لحظه آماده باشند.»
+</div>
+
+## manototv — post 105612
+
+<div align="center">
+  <a href="telegram/content/manototv_105612_1779134611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های داخل ایران گزارش دادند پدافند هوایی قشم شامگاه دوشنبه فعال شده است. مقام‌های جمهوری اسلامی توضیحی درباره علت فعالیت پدافند هوایی در این جزیره ارائه نکرده‌اند.
+</div>
+
+## manototv — post 105611
+
+<div align="center">
+  <a href="telegram/content/manototv_105611_1779134611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«رشید مظاهری به خاطر بیان عقیده_اش در بازداشت است»
+</div>
+
+## manototv — post 105610
+
+<div align="center">
+  <a href="telegram/content/manototv_105610_1779134612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+</div>
+
+## manototv — post 105609
+
+<div align="center">
+  <a href="telegram/content/manototv_105609_1779134614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانیان در لیسبون مقابل سفارت نروژ؛ اعتراض به دیدار سیاستمداران نروژی با جمهوری اسلامی
+</div>
+
+## alonews — post 120959
+
+<div align="center">
+  <a href="telegram/content/alonews_120959_1779134615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال محسن رضایی: وزیر کشور پاکستان که به ایران سفر کرده‌ بود، علاوه بر تبادل متونی، به نظر می‌رسد، ضرب‌الاجل دو روزه‌ ترامپ را هم منتقل کرده بود؛ مبنی بر اینکه یا توافق موردنظر امریکا را امضا می‌کنید یا حملات را به صورت گسترده از سر می‌گیریم!
+
+
+🔴اکنون ترامپ اعلام کرده در پاسخ به درخواست رهبران قطر، سعودی و امارات، حمله را به تعویق می‌اندازد تا مذاکرات پیش برود!
+
+
+🔴علی‌رغم تلاش‌های گسترده برخی کشورهای منطقه در روزهای اخیر، همچنان فاصله انتظارات، شروط و حتی نیات طرفین بسیار زیاد است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120958
+
+<div align="center">
+  <a href="telegram/content/alonews_120958_1779134615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای انفجار در سلیمانیه عراق 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120957
+
+<div align="center">
+  <a href="telegram/content/alonews_120957_1779134616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بمب‌های نور افکن تو غزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 23:23
 ---
 
