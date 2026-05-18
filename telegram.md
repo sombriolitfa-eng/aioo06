@@ -7,6 +7,182 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 00:52
+---
+
+## VahidOOnLine — post 240869
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240869_1779139328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس پلیس سن‌دیگو اعلام کرد درپی تیراندازی در مرکز اسلامی سن‌دیگو سه مرد بزرگسال کشته شدند و مهاجمان مظنون نیز جان باخته‌اند. پلیس گفت این حمله به عنوان یک جرم ناشی از نفرت در نظر گرفته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240868
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240868_1779139329.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240867
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240867_1779139331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11601
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11601_1779139331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیمون ریکلین، خبرنگار کانال ۱۴ اسرائیل، امروز احتمالاً اطلاعات محرمانه‌ای را به صورت زنده در مورد عملیات‌های مرتبط با کمپین علیه ایران فاش کرد، از جمله گزارش‌هایی درباره آمادگی‌ها برای عملیات زمینی احتمالی در سایت هسته‌ای .
+
+ریکلین گفت تمریناتی انجام شده است که شامل نیروهای کماندو می‌شود که به سایت حمله کرده و اورانیوم غنی‌شده را استخراج می‌کنند، و افزود بر اساس آنچه شنیده، این ماده در عمق زمین در اصفهان دفن نشده است و «زمانی که وارد تأسیسات شوند، می‌توان لوله‌ها را استخراج کرد.»
+
+سانسورچی‌های نظامی اسرائیل درخواست کرده‌اند این بخش از پلتفرم‌های پخش حذف شود.
+
+اعضای یش عتید، از جمله رام بن-باراک و الازار استرن، از بوعاز بیسموت، رئیس کمیته امور خارجه و امنیت، خواستند جلسه‌ای فوری برای بحث درباره انتشار «اطلاعات ادعاشده محرمانه که می‌تواند به دستاوردهای کمپین در ایران آسیب برساند و به آینده استراتژیک کشور خسارت وارد کند» برگزار شود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341900
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341900_1779139332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨BREAKING: San Diego authorities say three adults were killed in a shooting at the Islamic Center of San Diego on Monday. Police say two teen suspects are also dead.
+</div>
+
+## pm_afshaa — post 90997
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90997_1779139332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام امنیتی اسرائیلی به کانال 12:
+در کابینه همه از دست ترامپ کلافه شدیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337842
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337842_1779139333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ می‌گوید حمله برنامه‌ریزی شده روز سه‌شنبه به جمهوری اسلامی را به درخواست رهبران امارات، عربستان و قطر به تعویق انداخته تا یک شانس دیگر به توافق داده شود. ترامپ گفته ارتش آمریکا آماده است در صورت عدم توافق حمله را بی‌درنگ شروع کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337841
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337841_1779139334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس پلیس سن‌دیگو اعلام کرد درپی تیراندازی در مرکز اسلامی سن‌دیگو سه مرد بزرگسال کشته شدند و مهاجمان مظنون نیز جان باخته‌اند. پلیس گفت این حمله به عنوان یک جرم ناشی از نفرت در نظر گرفته شده است.
+https://iranintl.com/202605188629
+</div>
+
+## ManotoTV — post 105616
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105616_1779139335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+</div>
+
+## ManotoTV — post 105615
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105615_1779139337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+</div>
+
+## manototv — post 105616
+
+<div align="center">
+  <a href="telegram/content/manototv_105616_1779139337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+</div>
+
+## manototv — post 105615
+
+<div align="center">
+  <a href="telegram/content/manototv_105615_1779139339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+</div>
+
+## alonews — post 120973
+
+<div align="center">
+  <a href="telegram/content/alonews_120973_1779139339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قلهکی، ‏فعال رسانه ای حکومتی:
+ترامپ «شنبه‌شب» قصد حمله داشت که صبح آن قطر به ایران هشدار داد. علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120972
+
+<div align="center">
+  <a href="telegram/content/alonews_120972_1779139340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار جدید رونمایی شد
+‼️
+
+
+🔴تندروهای خیابون امشب شعار مرگ بر "امارات" میدادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 00:42
 ---
 
