@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 14:27
+---
+
+## mwarmonitor — post 9301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇹🇷ترکیه به دنبال نشست سران ناتو برای دستیابی به یک پیشرفت در زمینه نهایی شدن خرید جنگنده‌های F-35 از آمریکا است.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 4722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ 
+🔴 گفت‌وگوی وزرای خارجۀ قطر و ترکیه برای رفع بحران جمهوری اسلامی
+
+محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر امور خارجۀ قطر، در تماس تلفنی با هاکان فیدان، وزیر خارجۀ ترکیه، درمورد آخرین تحولات منطقه گفت‌وگو کرد.
+این دو مقام منطقه‌ای دربارۀ آتش‌بس میان آمریکا و جمهوری اسلامی و روند تحولات در خاورمیانه، رایزنی کردند.
+وزیر امور خارجۀ قطر بر ضرورت پشتیبانی از همۀ طرف‌ها از تلاش‌های میانجی‌گرانه وهمچنین بر ادامۀ مسیر مذاکرات برای جلوگیری از تشدید تنش‌ها تاکید کرده است.
+قطر و ترکیه پیش از جنگ چهل روزه نیز تلاش‌های بسیاری برای دور نگه داشتن جمهوری اسلامی از حملات آمریکا و اسرائیل انجام داده بودند.
+
+#قطر #ترکیه #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## Dirty_Kids — post 389732
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389732_1779188255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخی دلم خنک شد
+تا آخر ببینید ؛))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389731
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389731_1779188257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر کار دولت رئیسی: ایران هیچوقت دچار ابَرتورم نمیشه، چون وقتی قیمتا از یه حدی بالاتر بره مردم دیگه نمیتونن خرید کنن، فروشنده‌هام دیگه نمیتونن گرون کنن و در نتیجه همه چی ارزون و درست میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389730
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389730_1779188257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سالاد وارد کانال ۲ میلیون تومن شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389729
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389729" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 اپلیکیشن اندروید بدون فیلتر ریتزوبت
+
+➖➖➖➖➖
+
+🔹 ثبت نام آسان 
+✅
+🔹 رابط کاربری بسیار راحت و سریع 
+✅
+🔹 درگاه پرداخت کارت به کارت 
+✅
+🔹 درگاه پرداخت دلاری سریع 
+✅
+🔹 بونوس ۱۰۰ درصدی اولین واریز 
+✅
+🔹 بونوس ۱۰۰ درصدی واریز یکشنبه ها 
+✅
+
+➖➖➖➖➖
+🌐 https://RitzoBet.com
+
+⚡️ @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 389728
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389728_1779188258.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ برای #شرطبندی های فوتبال از سایت معتبر و بین المللی استفاده کنید ✅
+
+
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 چلسی 
+🔢
+🔢 
+⚽️تاتنهام
+
+سایت #ریتزوبت ، چهار سال هستش داخل ایران فعالیت میکنه 
+✅
+
+لایسنس بین المللی داره ، روش های شارژ و برداشت متنوع داره و بونوس 100% ورزشی و کش بک های جذاب
+💎
+
+
+⏪ اپلیکیشن بدون فیلتر ریتزوبت 
+📱
+⏩
+R29
+
+✅ لینک بدون‌ فیلتر ریتزوبت
+🤣
+
+🆔 @RitzoBet_ir 
+🇮🇷
+</div>
+
+## Dirty_Kids — post 389727
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389727_1779188258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی کرج یه عروسی به طرز عجیبی بهم خورد! حالا داستان چی بوده؟
+
+یه پسر شب عروسیش می بینه ۱۱ تا پسر جوون اومدن مراسمش و هیچکدوم رو نمی‌شناسه، هی از این و اون سوال می‌کنه می بینه کسی نمیشناستشون.
+خلاصه میره به دختره میگه تو اینارو می‌شناسی؟ میگه آره دوستای معمولی و مثل داداشمن، تازه یه چند تای دیگم هستن که نیومدن.
+داماد بدبختم پشماش می‌ریزه و همونجا با یه خداحافظی دختر رو ترک می‌کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 14:22
 ---
 
