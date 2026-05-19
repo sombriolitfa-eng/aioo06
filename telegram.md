@@ -7,6 +7,132 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 20:33
+---
+
+## VahidOOnLine — post 241004
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241004_1779210186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد در بازه زمانی ۲۸ و ۲۹ اردیبهشت، هیچ حادثه‌ای در خلیج فارس و دریای عمان گزارش نشده است.
+
+با این حال، وضعیت امنیتی منطقه همچنان ناپایدار است و تهدید علیه کشتیرانی تجاری ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241003
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241003_1779210187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا (OFAC)، در راستای برنامه «خشم اقتصادی» (Economic Fury)، یک صرافی بزرگ ایرانی و شرکت‌های صوری وابسته به آن را که صدها میلیون دلار تراکنش مالی را برای بانک‌های تحریم‌شده جمهوری اسلامی مدیریت می‌کردند، در لیست تحریم‌ها قرار داد. به گفته واشنگتن، این شبکه‌ها سالانه میلیاردها دلار ارز را جابه‌جا کرده و دسترسی نظام و نیروهای مسلح جمهوری اسلامی به سیستم مالی بین‌المللی و درآمدهای نفتی را تسهیل می‌کنند.
+
+علاوه بر این، وزارت خزانه‌داری ۱۹ نفت‌کش و شناور دیگر را که در انتقال نفت و محصولات پتروشیمی ایران به مشتریان خارجی نقش داشتند، توقیف و مسدود کرد. این اقدام با هدف کاهش درآمدهای ارزی جمهوری اسلامی برای توسعه تسلیحات و تامین مالی گروه‌های نیابتی صورت گرفته است.
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با هشدار به نهادهای مالی بین‌المللی درباره شگردهای تهران تاکید کرد: «سیستم بانکداری سایه‌ای ایران، انتقال غیرقانونی پول برای اهداف تروریستی را تسهیل می‌کند و خزانه‌داری آمریکا به شکلی نظام‌مند در حال متلاشی کردن این شبکه پولی و ناوگان شبحی تهران است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش چشم (مرشد) : تا اخر هفته میزنن
+
+@withyashar 😂
+</div>
+
+## IranIntlTV — post 337963
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337963_1779210188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد در بازه زمانی ۲۸ و ۲۹ اردیبهشت، هیچ حادثه‌ای در خلیج فارس و دریای عمان گزارش نشده است.
+
+با این حال، وضعیت امنیتی منطقه همچنان ناپایدار است و تهدید علیه کشتیرانی تجاری ادامه دارد.
+https://iranintl.com/202605197145
+</div>
+
+## FarsiVOA — post 218145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | پیامدهای خفقان دیجیتال مردم ایران توسط جمهوری اسلامی: نابودی معیشت خانوارها و تحمیل فقر به زنان
+
+▪️اقدام جمهوری اسلامی در قطع اینترنت، ضمن نابودی صدها هزار کسب‌وکار خانگی، معیشت میلیون‌ها خانوار ایرانی را با بحران مواجه کرده و با تحمیل فقر به زنان، آسیب‌های شدیدی به معیشت و استقلال مالی و اجتماعی زنان [جمهوری اسلامی] ایران وارد کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/internet-outage-in-iran-women-poverty-instagram-jobs/8151672.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 14485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی‌حسین‌ قاضی‌زاده:
+
+فیفا قصد دارد ورود پرچم شیر و خورشید به استادیوم‌های جام‌جهانی را ممنوع کند.
+
+ج.ا. جام جهانی را به میدان جنگ حکومت و مردم بدل کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14484
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14484_1779210189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 سرپرست تیم‌ملی فوتبال:
+
+ممنوعیت بُردن هرگونه پرچم
+به غیر از پرچم ایران به ورزشگاه‌های جام جهانی درست است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121149
+
+<div align="center">
+  <a href="telegram/content/alonews_121149_1779210191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو باز هم به دلایل امنیتی درخواست کرده است که فردا در دادگاهش برگزار نشود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121148
+
+<div align="center">
+  <a href="telegram/content/alonews_121148_1779210191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرمانده سنتکام، دریادار کوپر :
+- ایران از وقتی آتش‌بس شروع شده، ده‌ها نفر رو اعدام کرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 20:23
 ---
 
