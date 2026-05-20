@@ -7,6 +7,276 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 17:53
+---
+
+## VahidOOnLine — post 241152
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241152_1779287034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل شرکت ملی نفت ابوظبی، اعلام کرده است امارات متحده عربی اجرای طرح ساخت یک خط لوله جدید برای دور زدن تنگه هرمز را پیش برده و این پروژه اکنون ۵۰ درصد پیشرفت داشته است.
+در حال حاضر خط لوله عملیاتی امارات، خط لوله حبشان–فجیره است که از میادین نفتی حبشان در جنوب‌غرب ابوظبی تا بندر فجیره در دریای عمان امتداد دارد.
+این خط لوله در حال حاضر توان انتقال تا ۱.۸ میلیون بشکه نفت در روز را دارد. تاسیسات نفتی فجیره از زمان آغاز جنگ چندین بار هدف حملات پهپادی منتسب به ایران قرار گرفته است.
+بر اساس اعلام مقامات اماراتی، خط لوله جدید قرار است ظرفیت کل صادرات نفت این کشور را تا سال آینده دو برابر کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241151
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241151_1779287035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، اعلام کرد: هرجا لازم باشد می‌جنگیم و هرجا لازم باشد مذاکره می‌کنیم. ما کاملا در خدمت منافع نظام هستیم.
+
+عراقچی افزود که ارتباط و هماهنگی مستمر و روزانه میان وزارت خارجه و فرماندهان نیروهای مسلح در سطوح مختلف برقرار است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241150
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241150_1779287035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی، روز چهارشنبه ۳۰ اردیبهشت، با انتشار مطلبی در شبکه اجتماعی ایکس و با استناد به کتاب خاطرات جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، «سیاست‌های جنگ‌طلبانه واشنگتن» را مورد انتقاد قرار داد.
+
+قالیباف با نقل‌قولی از کتاب «مرثیه هیل‌بیلی» نوشته ونس که در آن به ناامیدی طبقه کارگر آمریکا از حضور در «دو جنگ غیرقابل‌پیروزی» (عراق و افغانستان) اشاره شده، نوشت که نسخه دوم این وضعیت در راه است.
+
+رئیس مجلس شورای اسلامی نوشت که در موازنه جدید قدرت در واشنگتن، بار دیگر «طبقه فقیر و فراموش‌شده آمریکا» باید تاوان «جاه‌طلبی‌های سرمایه‌داران بزرگ فناوری، مدیران ارشد وال‌استریت از جمله جیمی دایمن، و کاسبان جنگ» در کمربند سیاسی واشنگتن را بپردازند.
+
+قالیباف در حالی به طبقه «فقیر و فراموش‌شده» در آمریکا پرداخت که گزارش‌ها از ایران حاکی از گرانی افسارگسیخته اقلام اساسی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ دربارهٔ خودش:
+
+شما در نهایت خواهید گفت: او بزرگ‌ترین رئیس‌جمهوری بود که تاکنون زندگی کرده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341993
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341993_1779287036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump boards Air Force One en route to Connecticut, where he will deliver remarks at the U.S. Coast Guard Academy graduation ceremony.
+</div>
+
+## FoxNewsTwitter — post 341992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Iran’s Revolutionary Guard warns that if the U.S. and Israel resume attacks on Tehran, the conflict would spread “beyond the region” and bring “crushing blows” in unexpected places.
+
+This comes after President Trump announced that the United States could end the conflict “very quickly” and claimed Iran was eager to negotiate.
+</div>
+
+## DEJradio — post 4784
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4784_1779287038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 انتقاد از حضور جمهوری اسلامی در نهادهای حقوق بشری سازمان ملل؛
+
+گفت‌وگو با هیلل نویر، مدیر اجرایی دیده‌بان در سازمان ملل.
+
+#حقوق_بشر #سازمان_ملل
+@DEJradio
+</div>
+
+## VahidOnline — post 75570
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75570_1779287039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران با انتشار بیانیه‌ای تهدید کرده که در صورت آغاز دوباره جنگ آمریکا و اسرائیل علیه ایران، جنگ «به فراتر از منطقه کشیده خواهد شد.»
+
+در این بیانیه با اشاره به تهدیدهای دونالد ترامپ و مقام‌های اسرائیل برای حمله مجدد به ایران آمده: «اگر تجاوز به ایران تکرار شود جنگ منطقه‌ای که وعده داده شده بود، این بار به فراتر از منطقه کشیده خواهد شد و ضربات کوبنده ما در جاهایی که تصور آن را ندارید شما را به خاک سیاه خواهد نشاند.»
+
+عباس عراقچی، وزیر خارجه ایران هم در واکنش به اظهارات تهدیدآمیز دونالد ترامپ، رئیس‌جمهور آمریکا، درباره احتمال از سرگیری حمله نظامی به ایران، در شبکه ایکس نوشته «با درس‌هایی که آموخته‌ایم و دانشی که به دست آورده‌ایم، مطمئن باشید بازگشت به میدان جنگ با شگفتی‌های بسیار بیشتری همراه خواهد بود.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75569
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75569_1779287039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران روز چهارشنبه ۳۰ اردیبهشت خبر دادند که محسن نقوی، وزیر کشور پاکستان، وارد تهران شده است. او روز ۲۶ اردیبهشت نیز به ایران سفر کرده بود.
+
+خبرگزاری ایسنا اعلام کرده که برنامه و اهداف سفر این مقام ارشد پاکستانی در ایران «مشخص نیست». خبرگزاری تسنیم نیز گزارش داده که آقای نقوی در بدو ورود به تهران با وزیر کشور ایران دیدار کرده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75568
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75568_1779287040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌ها در ایران از اجرای حکم اعدام قاتل الهه حسین‌نژاد، که جسد او اوایل خرداد سال گذشته در بیابان‌های اطراف تهران پیدا شد، خبر می‌دهند.
+
+عصر چهارم خرداد ۱۴۰۴ الهه حسین‌نژاد ۲۴ ساله از سالن زیبایی که در آنجا مشغول به کار بود، بیرون آمد تا به خانه‌اش در اسلامشهر برود، اما ناپدید شد و وقتی خانواده‌اش اعلام شکایت کردند بررسی‌های تیم جنایی نشان می‌داد الهه از میدان آزادی سوار یک خودروی عبوری شده است.
+
+جست و جوها برای یافتن الهه سرانجام پس از ۱۱ روز نتیجه داد و با دستگیری راننده خودرو به نام بهمن ۳۷ ساله و اعتراف به قتل الهه، جسد او در بیابان‌های اطراف تهران پیدا شد. متهم نیز پس از محاکمه به اعدام محکوم شد.
+
+این قتل جنجال زیادی درباره امنیت زنان در ایران به پا کرد و تا مدت‌ها رسانه‌ها درباره آن مطالب مختلفی منتشر می‌کردند.
+
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75567
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75567_1779287041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های حقوق بشری گزارش دادند دادگاه کیفری تهران پس از رسیدگی دوباره به پرونده شهرک اکباتان، سه معترض بازداشت‌شده در این پرونده را به دیه و پنج سال حبس محکوم و سه معترض دیگر را از اتهام مشارکت در «قتل عمد» تبرئه کرد. حکم اعدام این شش تن پیش‌تر در دیوان عالی کشور نقض شده بود.
+
+سایت هرانا چهارشنبه ۳۰ اردیبهشت گزارش داد شعبه ۱۳ دادگاه کیفری یک استان تهران، میلاد آرمون، علیرضا کفایی و امیرمحمد خوش‌اقبال را بابت اتهام «مشارکت در قتل عمد» آرمان علی‌وردی، از نیروهای بسیج، محکوم کرد. هر یک از آن‌ها به پرداخت سهم مساوی از دیه کامل یک انسان و پنج سال حبس محکوم شده‌اند.
+
+طبق گزارش هرانا، نوید نجاران، حسین نعمتی و علیرضا برمرزپورناک، سه متهم دیگر این پرونده، به دلیل «فقدان مدارک دال بر وارد کردن ضربه به ناحیه مشخصی از بدن علی‌وردی» از اتهام مشارکت در قتل عمد تبرئه شدند.
+
+این حکم ۱۵ بهمن سال گذشته صادر و سه‌شنبه ۲۹ اردیبهشت به وکلای این افراد ابلاغ شده است.
+
+این شش شهروند معترض در آبان ۱۴۰۳ از سوی همین شعبه به اعدام محکوم شده بودند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 338094
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338094_1779287041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سومین روز رسیدگی به پرونده حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، در دادگاه وولیچ برگزار شد. دادستان این دادگاه گفت، حمله کنندگان به نیابت از جمهوری اسلامی، به قصد آسیب رساندن به پوریا زراعتی این حمله را انجام دادند.
+
+تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338093
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338093_1779287043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، اعلام کرد: هرجا لازم باشد می‌جنگیم و هرجا لازم باشد مذاکره می‌کنیم. ما کاملا در خدمت منافع نظام هستیم.
+
+عراقچی افزود که ارتباط و هماهنگی مستمر و روزانه میان وزارت خارجه و فرماندهان نیروهای مسلح در سطوح مختلف برقرار است.
+https://iranintl.com/202605208263
+</div>
+
+## IranIntlTV — post 338092
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338092_1779287043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران با انتشار بیانیه‌ای در واکنش به تهدیدهای اخیر دونالد ترامپ، هشدار داد در صورت حمله دوباره آمریکا و اسرائیل به جمهوری اسلامی، دامنه جنگ از منطقه فراتر خواهد رفت. سپاه همچنین اعلام کرد «ضربات کوبنده» را در مکان‌هایی وارد می‌کند که به گفته این نهاد نظامی، طرف مقابل «تصورش را هم نمی‌کند.»
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338091
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338091_1779287045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شران هسکل، معاون وزیر خارجه اسرائیل، به بابک اسحاقی، خبرنگار ایران‌اینترنشنال، گفت جنگ اسرائیل با سپاه و ایدئولوژی افراطی است، نه با مردم ایران.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6114
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6114_1779287047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار مادرجنده بی جنبه :( بلاک کرد
+</div>
+
+## ManotoTV — post 105685
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105685_1779287047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل شرکت ملی نفت ابوظبی، اعلام کرده است امارات متحده عربی اجرای طرح ساخت یک خط لوله جدید برای دور زدن تنگه هرمز را پیش برده و این پروژه اکنون ۵۰ درصد پیشرفت داشته است.
+در حال حاضر خط لوله عملیاتی امارات، خط لوله حبشان–فجیره است که از میادین نفتی حبشان در جنوب‌غرب ابوظبی تا بندر فجیره در دریای عمان امتداد دارد.
+این خط لوله در حال حاضر توان انتقال تا ۱.۸ میلیون بشکه نفت در روز را دارد. تاسیسات نفتی فجیره از زمان آغاز جنگ چندین بار هدف حملات پهپادی منتسب به ایران قرار گرفته است.
+بر اساس اعلام مقامات اماراتی، خط لوله جدید قرار است ظرفیت کل صادرات نفت این کشور را تا سال آینده دو برابر کند.
+</div>
+
+## manototv — post 105685
+
+<div align="center">
+  <a href="telegram/content/manototv_105685_1779287047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل شرکت ملی نفت ابوظبی، اعلام کرده است امارات متحده عربی اجرای طرح ساخت یک خط لوله جدید برای دور زدن تنگه هرمز را پیش برده و این پروژه اکنون ۵۰ درصد پیشرفت داشته است.
+در حال حاضر خط لوله عملیاتی امارات، خط لوله حبشان–فجیره است که از میادین نفتی حبشان در جنوب‌غرب ابوظبی تا بندر فجیره در دریای عمان امتداد دارد.
+این خط لوله در حال حاضر توان انتقال تا ۱.۸ میلیون بشکه نفت در روز را دارد. تاسیسات نفتی فجیره از زمان آغاز جنگ چندین بار هدف حملات پهپادی منتسب به ایران قرار گرفته است.
+بر اساس اعلام مقامات اماراتی، خط لوله جدید قرار است ظرفیت کل صادرات نفت این کشور را تا سال آینده دو برابر کند.
+</div>
+
+## alonews — post 121327
+
+<div align="center">
+  <a href="telegram/content/alonews_121327_1779287048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: ممکن است طی ساعات آینده از نهایی شدن نسخه نهایی توافق بین آمریکا و ایران خبر داده شود. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121326
+
+<div align="center">
+  <a href="telegram/content/alonews_121326_1779287048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووری
+</div>
+
+## alonews — post 121325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووری
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 17:43
 ---
 
