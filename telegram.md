@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 19:23
+---
+
+## WithYashar — post 11764
+
+
+
+
+## FoxNewsTwitter — post 341997
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341997_1779292406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Ilhan Omar stays silent when pressed about her alleged ties to Minnesota’s massive fraud scandal.
+
+Fox News Digital repeatedly asked Omar about individuals connected to the “Feeding Our Future” case and whether she had concerns about fraud tied to pandemic-era programs in her state.
+
+She refused to answer and walked away without responding.
+
+The scandal — described by federal prosecutors as one of the largest COVID fraud schemes in the country — allegedly involved hundreds of millions in taxpayer money meant to feed children.
+
+In a statement Rep. Omar wrote, “Any claim that I had knowledge of this scheme is flat-out false. The MEALS Act was signed into law by President Trump and passed with bipartisan support as part of a broader legislative package.”
+</div>
+
+## FoxNewsTwitter — post 341996
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341996_1779292408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump delivers the commencement address at the US Coast Guard Academy
+https://twitter.com/i/broadcasts/1mxPaLyqEzdKN
+</div>
+
+## pm_afshaa — post 91116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥تخفیف ویژه فقط به مدت 2 روز
+🔥 
+🚀با بالاترین سرعت و کمترین قطعی 
+💰هر گیگ فقط و فقط 170 هزار تومان 
+⚡️پینگ عالی 
+⚡️دارای لینک ساب 
+⚡️پشتیبانی 24 ساعته 
+⚡️ بدون محدودیت کاربر و زمان و ضریب 
+⚡️مخصوص استفاده روزمره، هوش مصنوعی، گیم و ... 
+✅جهت خرید با تحویل آنی فقط…
+</div>
+
+## DW_Farsi — post 124933
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124933_1779292409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 امارات از عراق خواست فورا جلوی حملات از خاک خود را بگیرد
+
+امارات متحده عربی روز چهارشنبه ۲۰ مه از عراق خواست فورا مانع هرگونه اقدام خصمانه از خاک خود شود.
+
+وزارت خارجه امارات در بیانیه‌ای اعلام کرد ابوظبی بر این باور است که پهپادی که یکشنبه به یک ژنراتور برق در نزدیکی نیروگاه هسته‌ای براکه در اطراف ابوظبی اصابت کرد، از خاک عراق به پرواز درآمده بود.
+
+وزارت خارجه امارات تاکید کرد عراق باید بدون شرط و در کوتاه‌ترین زمان ممکن از هرگونه اقدام خصمانه‌ای که از خاک این کشور منشأ می‌گیرد جلوگیری کند. در این بیانیه آمده است تهدیدهای موجود باید "سریع، فوری و مسئولانه" مهار شوند.
+
+در حمله روز یکشنبه، یک پهپاد به یک ژنراتور برق در نزدیکی نیروگاه هسته‌ای براکه اصابت کرد.
+
+این حمله که هیچ گروهی مسئولیت آن را به عهده نگرفت، باعث آتش‌سوزی شد، اما هیچ زخمی یا نشت پرتوی در پی نداشت. مقام‌های اماراتی همچنین گفتند دو پهپاد دیگر نیز رهگیری شده‌اند.
+
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 389814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری قیمت نفت آمریکا بیش از ۷٪ کاهش یافته و به ۹۷ دلار در هر بشکه رسیده است پس از آنکه رئیس‌جمهور ترامپ گفت آمریکا در «مراحل نهایی» مذاکرات با ایران است. @Dirty_Kids 👻
+</div>
+
+## alonews — post 121351
+
+<div align="center">
+  <a href="telegram/content/alonews_121351_1779292409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل از منابع دیپلماتیک: تعداد کشورهای حامی پیش نویس قطعنامه تنگه هرمز در شورای امنیت به ۱۳۶ کشور رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121350
+
+<div align="center">
+  <a href="telegram/content/alonews_121350_1779292409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر اسرائیل در واشنگتن: هر توافقی با ایران لزوماً باید بر پایۀ اصل عدم اعتماد باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121349
+
+<div align="center">
+  <a href="telegram/content/alonews_121349_1779292410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور سابق کوبا، رائول کاسترو، طبق گزارش رویترز و به نقل از یک مقام ارشد دولت ترامپ، در ایالات متحده متهم شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121348
+
+<div align="center">
+  <a href="telegram/content/alonews_121348_1779292410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لارنس نورمن خبرنگار وال استریت ژورنال، با اشاره به خبر العربیه: حس من این است که اتفاق مهمی در جریان است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 19:13
 ---
 
