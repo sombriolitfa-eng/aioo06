@@ -7,6 +7,53 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 06:02
+---
+
+## VahidOOnLine — post 241259
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241259_1779330743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس بیزنس گزارش داد آمریکا تلاش‌ها برای هدف قرار دادن استفاده جمهوری اسلامی از ارزهای دیجیتال را تشدید کرده است. به گفته مقام‌های آمریکایی، تهران حدود ۷.۷ میلیارد دلار دارایی دیجیتال را تحت کنترل دارد.
+به گفته مقام‌های آمریکایی، مقابله با شبکه‌های مالی دیجیتال جمهوری اسلامی اکنون به بخشی از راهبرد فشار اقتصادی واشینگتن علیه تهران تبدیل شده است.
+بر اساس این گزارش، جمهوری اسلامی از بیت‌کوین و سایر رمزارزها برای انتقال پول خارج از سیستم بانکی سنتی استفاده کرده است که این مسیر می‌تواند به دور زدن تحریم‌ها کمک کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342034
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342034_1779330743.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Intense footage shows a police BearCat accelerating toward a camouflage-clad alleged cop killer as he fired multiple rounds into the armored vehicle's window and underside.
+
+Deputies backed away but were forced to re-engage a second time as the suspect continued manipulating his rifle and reached for a handgun in his waistband.
+
+Tulare County Sheriff Mike Boudreaux confirmed that deputies ultimately used the BearCat to run over the suspect a third and final time to neutralize the threat, resulting in his death.
+</div>
+
+## IranIntlTV — post 338180
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338180_1779330745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس بیزنس گزارش داد آمریکا تلاش‌ها برای هدف قرار دادن استفاده جمهوری اسلامی از ارزهای دیجیتال را تشدید کرده است. به گفته مقام‌های آمریکایی، تهران حدود ۷.۷ میلیارد دلار دارایی دیجیتال را تحت کنترل دارد.
+به گفته مقام‌های آمریکایی، مقابله با شبکه‌های مالی دیجیتال جمهوری اسلامی اکنون به بخشی از راهبرد فشار اقتصادی واشینگتن علیه تهران تبدیل شده است.
+بر اساس این گزارش، جمهوری اسلامی از بیت‌کوین و سایر رمزارزها برای انتقال پول خارج از سیستم بانکی سنتی استفاده کرده است که این مسیر می‌تواند به دور زدن تحریم‌ها کمک کند.
+
+https://iranintl.com/202605210850
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 05:52
 ---
 
