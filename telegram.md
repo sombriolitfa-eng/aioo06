@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 18:53
+---
+
+## WithYashar — post 11850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه آمریکا: مقامات پاکستانی امروز به تهران سفر خواهند کرد؛ نشانه‌های مثبتی وجود دارد.
+@withyashar
+</div>
+
+## mwarmonitor — post 9419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو: مذاکرات با ایران «تا حدی پیشرفت داشته… نشانه‌های خوبی هم وجود دارد. نمی‌خواهم بیش از حد خوش‌بین باشم. باید ببینیم در چند روز آینده چه اتفاقی می‌افتد».
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 87531
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87531_1779376983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پیت هگست، وزیر جنگ آمریکا، یکبار دیگر جمهوری‌اسلامی را با عبارت «لاکد اند لودد» تهدید کرد؛ آماده و مسلح.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338262_1779376983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ مقاله‌ای از نیویورک‌پست را بازنشر کرده که در آن، طرحی سه‌مرحله‌ای برای افزایش فشار بر جمهوری اسلامی مطرح شده است. این طرح بر ادامه محاصره دریایی، اسکورت نظامی نفتکش‌ها در خلیج فارس و ایجاد مسیرهای جایگزین انتقال انرژی برای دور زدن تنگه هرمز تمرکز دارد.
+جزییات بیشتر با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## alonews — post 121593
+
+<div align="center">
+  <a href="telegram/content/alonews_121593_1779376985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه آمریکا: در صورت عدم دستیابی به توافق خوب با ایران، وارد جزئیات گزینه‌های پیش روی رئیس جمهور ترامپ نمی‌شوم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121592
+
+<div align="center">
+  <a href="telegram/content/alonews_121592_1779376985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: ببینیم آیا می‌توانیم با ایران به توافق برسیم، نشانه‌های خوبی وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121591
+
+<div align="center">
+  <a href="telegram/content/alonews_121591_1779376985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه آمریکا: مقامات پاکستانی امروز به تهران سفر خواهند کرد؛ نشانه‌های مثبتی وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121590
+
+<div align="center">
+  <a href="telegram/content/alonews_121590_1779376985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه آمریکا: ما در مذاکرات با ایران پیشرفت‌هایی داشته‌ایم
+
+
+🔴گزینه ترجیحی رئیس جمهور ترامپ دستیابی به توافق مسالمت آمیز با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 18:43
 ---
 
