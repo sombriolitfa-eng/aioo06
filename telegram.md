@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 10:32
+---
+
+## mwarmonitor — post 9456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به نقل از رویترز و به گفته یک منبع پاکستانی:
+🔸نگرانی‌هایی وجود دارد که صبر ترامپ رو به پایان باشد، اما ما در حال تلاش برای تسریع روند انتقال پیام‌ها میان دو طرف هستیم.
+
+📝 یعنی هر لحظه امکانش هست دستور حمله بده
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جروزالم پست: مقامات اطلاعاتی اسرائیل هشدار دادند که ایران ممکن است در حال برنامه‌ریزی برای حمله موشکی و پهپادی غافلگیرکننده علیه اسرائیل و کشورهای خلیج فارس باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال: وزارت دادگستری آمریکا تحقیقات خود را درباره استفاده ایران از پلتفرم بایننس برای احتمالا دور زدن تحریم‌ها آغاز کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338357
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338357_1779433355.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که مقام‌های جمهوری اسلامی از قول مجتبی خامنه‌ای می‌گویند اورانیوم غنی شده را به آمریکا تحویل نمی‌دهند، دونالد ترامپ، رییس‌جمهوری ایالات متحده بر گرفتن و نابودی آن تاکید دارد.
+گفت‌وگو با حسین علیزاده، تحلیل‌گر مسائل بین‌الملل
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14649
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14649_1779433357.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندر احوالات مذاکرات ایران-آمریکا
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121703
+
+<div align="center">
+  <a href="telegram/content/alonews_121703_1779433359.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جروزالم پست: مقامات اطلاعاتی اسرائیل هشدار دادند که ایران ممکن است در حال برنامه‌ریزی برای حمله موشکی و پهپادی غافلگیرکننده علیه اسرائیل و کشورهای خلیج فارس باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121702
+
+<div align="center">
+  <a href="telegram/content/alonews_121702_1779433359.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جوجه‌کباب میلیونی شد ....
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 10:22
 ---
 
