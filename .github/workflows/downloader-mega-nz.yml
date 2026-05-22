@@ -1,4 +1,4 @@
-name: mega-nz-downloader
+name: downloader-mega-nz
 
 on:
   workflow_dispatch:
