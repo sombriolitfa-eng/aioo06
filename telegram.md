@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 11:22
+---
+
+## VahidOOnLine — post 241471
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241471_1779436374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک روته، دبیرکل ناتو، از تصمیم دونالد ترامپ برای اعزام ۵ هزار نیروی آمریکایی به لهستان استقبال کرد و گفت فرماندهان نظامی ناتو در حال بررسی جزئیات این استقرار هستند. این تصمیم پس از آن اعلام شد که برنامه قبلی اعزام نیرو، در سایه فشارها برای افزایش مسئولیت‌پذیری اروپا در حوزه دفاعی، متوقف شده بود.
+
+روته در عین حال تاکید کرد اروپا و ناتو باید به‌تدریج وابستگی بلندمدت خود به آمریکا را کاهش دهند و گفت: «مسیر ما باید به سمت اروپایی قوی‌تر و ناتویی قوی‌تر باشد؛ به‌گونه‌ای که در طول زمان کمتر به تنها یک متحد، یعنی ایالات متحده، متکی باشیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ فروش ۱۴ میلیارد دلار سلاح به تایوان را متوقف کرده تا مهمات آمریکا برای جنگ با ایران حفظ شود؛ به‌گفتهِ هانگ کائو، سرپرست وزارت نیروی دریایی آمریکا.
+
+او به سناتورها گفت: “در حال حاضر ما این فروش را متوقف کرده‌ایم تا مطمئن شویم مهماتی که برای عملیات اِپیک فیوری لازم داریم در اختیارمان باشد.” کائو اضافه کرد که آمریکا همچنان “به‌قدرِ کافی” سلاح در اختیار دارد.
+@withyashar
+</div>
+
+## IranIntlTV — post 338364
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338364" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | جمعه ۱ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6132
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6132_1779436377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NetBlocks ✓ @netblocks
+Fri, 22 May 2026 07:34:28 UTC
+
+⌚️ #Iran's internet blackout has just entered its 84th day with international networks largely cut off for over 1992 hours.
+
+Each passing hour widens social and economic divides as any contact with the outside world is gated by status, compliance and privilege.
+
+فارسی
+
+⌚️ قطعی اینترنت #ایران وارد هشتاد و چهارمین روز خود شد و شبکه‌های بین‌المللی برای بیش از ۱۹۹۲ ساعت به طور گسترده قطع شده‌اند.
+
+با گذشت هر ساعت، شکاف‌های اجتماعی و اقتصادی عمیق‌تر می‌شوند، چرا که هرگونه تماس با دنیای خارج بر اساس وضعیت، پیروی [از قوانین] و امتیازات، محدود و فیلتر شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/zMW0RhvWank?feature=share
+</div>
+
+## Persian_Trend_Official — post 14652
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14652_1779436378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO
+گزارش داد که یک تانکر توسط یک قایق کوچک حامل پنج نفر در ۹۸ مایل دریایی شمال سوکوترا نزدیک یمن در حال نزدیک شدن به تانکر مورد نظر بود که با شلیک هشدار تیم امنیتی کشتی مواجه شدکه قایق را مجبور به تغییر مسیر کردند.
+
+
+
+🚢PhantomDirective
+🚢
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121713
+
+<div align="center">
+  <a href="telegram/content/alonews_121713_1779436378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دبیرکل ناتو: تعدادی از کشورهای اروپایی تمایل خود را برای مشارکت در تلاش‌ها جهت بازگشایی تنگه هرمز ابراز کرده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121712
+
+<div align="center">
+  <a href="telegram/content/alonews_121712_1779436379.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: مقامات دریایی بریتانیا مدعی گزارشی از وقوع حادثه‌ای در ۹۸ مایل دریایی شمال سقطری، یمن شدند 
+🔴عملیات تجارت دریایی بریتانیا: کشتی نزدیک شدن یک قایق کوچک با ۵ سرنشین را تأیید کرد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 11:13
 ---
 
